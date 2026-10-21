@@ -1,4 +1,4 @@
- Hi, I'm Nancy Kiden Luka 👋
+ Hi, I'm Nancy Luka 
 
 Computer Science Student | Aspiring Cybersecurity Engineer | Software Developer
 
